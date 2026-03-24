@@ -1,45 +1,70 @@
-# パニック・アット・ザ・ディスコ – House of Memories (slowed down version)
+# Panic! At The Disco – House of Memories
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
 ```
-There is a house down in New
-Orleans
-They call the risin sun.
-Its been the ruin of many a poor
-girl
-And me, oh God, I'm one.
-My mother was a tailor
-She sewed these new blue jeans
-My sweetheart was a gambler
-Down in New Orleans.
-Now the only thing a gambler
-needs
-Is a suitcase and a trunk
-And the only time hes satisfied
-Is when hes on a drunk.
-Hell fill his glasses up to the
-brim
-And hell pass the cards around
-And the only pleasure he gets
-out of life
-Is ramblin from town to town.
-Oh tell my baby sister
-Not to do what I have done
-But shun that house in New
-Orleans
-They call the risin sun.
-And its one foot on the platform
-And the other foot on the train
-Im goin back to New Orleans
-To wear my ball and chain.
-Im going back to New Orleans
-My race is almost run
-Im goin back to end my life
-Down in the risin sun.
-There is a house in New Orleans
-They call the risin sun.
-Its been the ruin of many a poor
-girl
-And me, oh God, Im one.
+If you're a lover, you should
+know
+The lonely moments just get
+lonelier
+The longer you're in love
+Than if you were alone
+Memories turn into daydreams
+Become a taboo
+I don't want to be afraid
+The deeper that I go
+It takes my breath away
+Soft hearts electric souls
+Heart to heart and eyes to eyes
+Is this taboo?
+Baby we built this house
+On memories
+Take my picture now
+Shake it til you see it
+And when your fantasies
+Become your legacy
+Promise me a place
+In your house of memories
+I think of you from time to
+time
+More than I thought I would
+You were just too kind
+And I was too young to know
+That's all that really matters
+I was a fool
+Baby we built this house
+On memories
+Take my picture now
+Shake it til you see it
+And when your fantasies
+Become your legacy
+Promise me a place
+In your house of memories
+Those thoughts of
+Past lovers
+They'll always haunt me
+I wish I
+Could believe
+You'd never wrong me
+Then will you
+Remember
+Me in the same way
+As I remember you
+Baby we built this house
+On memories
+Take my picture now
+Shake it til you see it
+And when your fantasies
+Become your legacy
+Promise me a place
+Baby we built this house
+On memories
+Take my picture now
+Shake it til you see it
+And when your fantasies
+Become your legacy
+Promise me a place
+In your house of memories
+In your house of memories
+Promise me a place
 ```
